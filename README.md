@@ -1,2 +1,4 @@
-# Editorial-portfolio
-## Working currently in editorial department for 3 committees in college. Written various instagram captions, blogs, whatsapp forwards during my current tenure.
+
+## - Managed editorial work for 3 college committees
+## - Skillfully crafted Instagram captions, blogs, and WhatsApp content
+## - Penned a comprehensive 1000-word article on the AI paradox"
